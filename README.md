@@ -1,0 +1,2 @@
+# aji
+Hidup susah
